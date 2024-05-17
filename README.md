@@ -12,6 +12,7 @@
 - 😄 Pronouns:
 - He/Him
 - ⚡ Fun fact: ...
+- There has been 2,054 days since the last Megaman game released, and I am coping hard about it.
 
 <!---
 GraysonOrcutt/GraysonOrcutt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
