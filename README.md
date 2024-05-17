@@ -7,7 +7,7 @@
 - 💞️ I’m looking to...
 - Currently I feel like I'm being called to be a teacher, however I'm open to other job opportunities if they arise. If you have any, then...
 - 📫 How to reach me 
-Contact me at graysonorcuttprofessional@gmail.com for professional contact, and scream my name from the rooftops for personal contacts.
+- Contact me at graysonorcuttprofessional@gmail.com for professional contact, and scream my name from the rooftops for personal contacts.
 (note, the second method has shown to be unstable sometimes, user disgression is advised.)
 - 😄 Pronouns:
 - He/Him
